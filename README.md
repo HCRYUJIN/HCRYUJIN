@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HCRYUJIN !
+- 👀 I’m interested in electronics and mechanical engineering. 
+- 🌱 I’m currently learning electronics and computer sciences.
